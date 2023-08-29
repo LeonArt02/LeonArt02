@@ -1,3 +1,3 @@
--  Hi, I’m @LeonArt02 or just León, i'm from Argentina
-- 👀 I’m interested in all sort of things, one is coding.
-- 📫 Rach me: daniel.leonruarigo@gmail.com
+-  Hi, I’m León, i'm from Argentina, best country in the world
+- 👀 interested in all sort of things, one is coding.
+- 📫 : daniel.leonruarigo@gmail.com
