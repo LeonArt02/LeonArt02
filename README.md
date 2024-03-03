@@ -1,3 +1,3 @@
--  León | Argentina (mejor país del mundo)
+-  Leon | Argentina (mejor país del mundo)
 - 👀 interested in many things, one is coding.
 - 📫 : daniel.leonruarigo@gmail.com
