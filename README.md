@@ -1,3 +1,3 @@
--  Leon | Argentina (mejor país del mundo)
-- 👀 interested in many things, one is coding.
+-  Leon | Argentina 
+- 👀 interested in coding.
 - 📫 : daniel.leonruarigo@gmail.com
