@@ -1,3 +1,3 @@
--  Leon | Argentina 
-- 👀 interested in coding.
+-  León Rua | Argentina 
+- Coding.
 - 📫 : daniel.leonruarigo@gmail.com
